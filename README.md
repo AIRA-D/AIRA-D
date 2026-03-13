@@ -7,5 +7,5 @@
 ```
 ---
 
-Telegram: `@a1ra_d`
+Telegram: `@SOUNDW4V3`
 Email: `aira_d@vk.com`
